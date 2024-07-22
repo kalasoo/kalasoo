@@ -14,4 +14,4 @@
 
 
                                                                  🔭
-[👨‍💻️](https://yinming.me)
+👨‍💻️ [yinming.me](https://yinming.me)
