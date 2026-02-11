@@ -16,4 +16,6 @@
                                                                  🔭
 🤔 [yinming.me](https://yinming.me)
 
-👨‍💻️ [SeeU](https://seeu.lifestyle)
+👨‍💻️ [VibeCafé](https://vibecafe.ai)
+
+😎 [Vibe42](https://vibe42.ai)
